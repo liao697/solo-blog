@@ -10,7 +10,7 @@ liao697 的个人博客
 
 ### 最新
 
-* [世界，你好！](https://liaochenghuang.top/hello-solo)
+* [世界，你好！](http://www.liaochenghuang.top/hello-solo)
 
 
 
